@@ -4,12 +4,8 @@ Giải Nobel Kinh tế năm nay đã thuộc về 3 nhà kinh tế học xứng 
 
 Giải thưởng danh giá này đã được trao “cho cách tiếp cận mang tính thử nghiệm đối với việc giảm tình trạng đói nghèo trên toàn cầu”, bộc lộ một số hướng quan trọng mà nguyên tắc kinh tế học đang dần thay đổi.
 
-Esther Duflo, Michael Kreme, Abhijit Banerjee - Bộ ba đạt giải Nobel kinh tế 2019. Ảnh Getty
-Esther Duflo, Michael Kreme, Abhijit Banerjee - Bộ ba đạt giải Nobel kinh tế 2019. Ảnh Getty1966×1180 259 KB
 
-Esther Duflo, Michael Kreme, Abhijit Banerjee - Bộ 3 đạt giải Nobel kinh tế 2019. Ảnh: Getty
-
-Phá bỏ định kiến
+## Phá bỏ định kiến
 
 Theo trang tin Bloomberg, có một quan niệm phổ biến về các nhà kinh tế học, rằng họ là những người hết sức tôn thờ thị trường tự do, xem nhẹ vai trò của chính phủ và không quan tâm nhiều đến nhu cầu của tầng lớp nghèo nhất trong xã hội. Vô vàn nhà kinh tế phản đối “định kiến” này, và đã dành trọn sự nghiệp để nghiên cứu cách làm thế nào để nâng đỡ những công dân nghèo khổ nhất trong thế giới đang phát triển thông qua hành động của chính quyền. Banerjee, Duflo và Kremer là những cái tên thuộc nhóm này.
 
@@ -24,7 +20,7 @@ Với một số cá nhân, họ có thể có quan điểm rằng, chi tiêu v�
 
 Đầu tư cho giáo dục là một trong những chìa khóa để thoát nghèo. Ảnh: AFP
 
-Đổi mới trong nghiên cứu
+## Đổi mới trong nghiên cứu
 
 Điều đáng chú ý thứ hai về Giải thưởng Nobel kinh tế năm nay đó là hình thức nghiên cứu mà nó tôn vinh. Các nhà kinh tế học thường bị gắn liền với suy nghĩ là những nhà lý thuyết suông, ngồi vẽ đường cung - cầu trên bảng đen mà quên đi thực tế phức tạp của thế giới ngoài kia. Nhưng những thập niên gần đây, người ta đã chứng kiến một sự thay đổi lớn, theo hướng phân tích dữ liệu thực nghiệm, vấn đề nguyên nhân và kết quả trở thành trọng tâm của quá trình này.
 
@@ -36,10 +32,7 @@ Nhưng Banerjee, Duflo và Kremer nhận thức được những vấn đề nà
 
 Banerjee và Kremer cũng đã đưa ra các lý thuyết tại sao các chính phủ không thực thi được các chính sách tốt và tại sao các nước nghèo không phát triển được, giúp giải quyết câu hỏi vì sao một số chương trình có hiệu quả còn số khác lại không.
 
-Esther Duflo cùng các nông dân trồng cà phê ở Rwanda. Ảnh: Newyorker
-Esther Duflo cùng các nông dân trồng cà phê ở Rwanda. Ảnh: Newyorker1966×1875 793 KB
 
-Esther Duflo cùng các nông dân trồng cà phê ở Rwanda. Ảnh: Newyorker
 
 Trong một bài phát biểu năm 2017, Duflo đã phản bác lại những người chỉ trích mình, thông qua việc định nghĩa lại toàn bộ suy nghĩ về những điều mà các nhà kinh tế học nên làm. Bà đã so sánh các nhà kinh tế phát triển với thợ sửa ống nước, giải quyết những vấn đề của thế giới thực trong các tình huống cụ thể thay vì tìm kiếm những cái nhìn phổ quát. Bà lập luận, vì những vấn đề đói nghèo ở những địa điểm khác nhau chứa đựng những khác biệt lớn, các nhà kinh tế học nên xắn tay áo vào công việc thực tiễn và tìm ra các giải pháp cụ thể cho mỗi trường hợp.
 
