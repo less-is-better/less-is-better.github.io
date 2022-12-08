@@ -1,3 +1,5 @@
+# Chủ Nghĩa Tối Giản là gì 
+
 Chủ nghĩa tối giản là một công cụ có thể hỗ trợ bạn tìm kiếm sự tự do. Tự do khỏi sợ hãi. Tự do khỏi lo lắng. Tự do khỏi sự quá tải. Tự do khỏi cảm giác tội lỗi. Tự do khỏi trầm cảm. Tự do khỏi những cạm bẫy của văn hóa tiêu dùng mà chúng ta đã xây dựng cuộc sống của mình xung quanh. Tự do thực sự.
 
 Điều đó không có nghĩa là vốn dĩ có bất cứ điều gì sai trái với việc sở hữu của cải vật chất. Vấn đề ngày nay dường như là ý nghĩa mà chúng ta gán cho những thứ của mình: chúng ta có xu hướng gán quá nhiều ý nghĩa vào những thứ của mình, thường xuyên không quan tâm tới sức khỏe, các mối quan hệ, sự đam mê, sự phát triển cá nhân và mong muốn đóng góp cho xã hội. Bạn muốn sở hữu một chiếc xe hơi hoặc một ngôi nhà? Tuyệt vời, có nó! Bạn muốn gầy dựng và chăm lo một gia đình và có một sự nghiệp? Nếu những điều này quan trọng đối với bạn, thì điều đó thật tuyệt vời. Chủ nghĩa tối giản chỉ đơn giản là cho phép bạn đưa ra những quyết định này một cách có ý thức hơn, có chủ ý hơn.
@@ -27,7 +29,7 @@ Thông qua các bài tiểu luận của mình, chúng tôi dự định sẽ tr
 
 Đây chỉ là sự tối giản của chúng tôi. Để biết thêm, hãy đọc lời giới thiệu về chủ nghĩa tối giản , cũng như một số lời giải thích của bạn bè chúng tôi về chủ nghĩa tối giản:
 
-    Mô tả của Leo Babauta về Chủ nghĩa tối giản
-    Lợi ích của chủ nghĩa tối giản của Joshua Becker
-    25 lý do khiến bạn có thể trở thành người theo chủ nghĩa tối giản của Courtney Carver
-    Chủ nghĩa tối giản của Colin Wright được giải thích
+- Mô tả của Leo Babauta về Chủ nghĩa tối giản: https://mnmlist-com.translate.goog/minimalist-faqs/
+- Lợi ích của chủ nghĩa tối giản của Joshua Becker: https://www-becomingminimalist-com.translate.goog/minimalism-benefits/ 
+- 25 lý do khiến bạn có thể trở thành người theo chủ nghĩa tối giản của Courtney Carver: https://bemorewithless-com.translate.goog/25-reasons-you-might-be-a-minimalist/?_x_tr_sl=auto&_x_tr_tl=vi&_x_tr_hl=vi&_x_tr_pto=wapp
+- Chủ nghĩa tối giản của Colin Wright được giải thích: https://exilelifestyle-com.translate.goog/minimalism-explained/?_x_tr_sl=auto&_x_tr_tl=vi&_x_tr_hl=vi&_x_tr_pto=wapp
